@@ -4,11 +4,11 @@ Aku ingin menjadi lelaki biasa
 
 Yang sederhana apa adanya
 
-Yg hatinya bukan untuk banyak wanita
+Yg hatinya pun terbatas untuk satu wanita saja
 
-Pun hanya mencintai satu saja
+Tetapi cara mencintainya tidak terbatas 
 
-Tetapi dengan banyak cara
+Dan dengan jutaan cara
 
 
 
